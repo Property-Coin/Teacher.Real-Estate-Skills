@@ -1,0 +1,1 @@
+- [3 Mindset Shifts To Crush It At Real Estate (And Life)!](https://youtu.be/SONHGVoMVhI)
